@@ -4,7 +4,7 @@
 
 
 - 👋 Hi, I’m Sandeep!
-- 🌱 I’m currently pursuing : BCA Sem-III
+- 🌱 I’m currently pursuing : MCA Sem-III
 - 📫 Reach me at : sky.info4u@gmail.com
 - 💻 Here Are Some Of My Projects: [https://linktr.ee/sky24omg]
 
